@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @b33tle-k1ddie
 - 👀 I’m interested in girls, sex, programming, games, hacking, modafinil, phenibut
 - 🌱 I’m currently learning Determinism, Multiverse, Metaverse and python + frontend
-- 💞️ I’m looking to collaborate on Goverment👀????(wtf)
+- 💞️ I’m looking to collaborate on Government👀????(wtf)
 - 📫 How to reach me telegram t.me/f4ckitiamarobot
 
 <!---
